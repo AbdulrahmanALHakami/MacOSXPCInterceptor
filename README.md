@@ -48,6 +48,6 @@ thank you and have nice day
 
 
 Abdulrahman Al-Hakami 
-Twitter: @d7xsa 
+ 
 
 
